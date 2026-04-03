@@ -1,4 +1,4 @@
-# Hi there, I'm Muhammed Fayez Alhomiedat 👋
+# Hi there, I'm Muhammed Alhomiedat 👋
 
 ### 👨🏻‍💻 About Me
 * 🎓 I'm a Computer Information Systems student at Hashemite University (Expected 2027).
